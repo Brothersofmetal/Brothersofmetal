@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Brothersofmetal
 - 👀 I’m interested in marketing
 - 🌱 I’m currently learning coin and token marketing
-- 💞️ I’m looking to collaborate on marketing for all social media
+- 💞️ I’m looking to collaborate on marketing for all social medias
 - 📫 How to reach me;  https://www.lydiamarketing.tech
 Telegram: @presalecatcherr
 
